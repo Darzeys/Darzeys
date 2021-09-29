@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Darzeys
+- 👀 I’m interested in roblox, and CB:RO and roblox exploting
+- 🌱 I’m currently learning how to 360 noscope
+- 💞️ I’m looking to collaborate on a madness comabt animation
+- 📫 How to reach me via roblox at gingy_games or through email: vexedgtm@gmail.com
